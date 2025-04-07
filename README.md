@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Mrfunnybones69
-- 👀 I’m interested in Badminton player full-time and a Data Analyst/Data Scientist part-time
+- 👀 I’m a Badminton player full-time and a Data Analyst/Data Scientist part-time
 - 🌱 I’m currently learning how to be authentic.
 - 💞️ I’m looking to collaborate on anything and everything that has DATA.
 - 📫 How to reach me : furtadoraymond7@gmail.com
